@@ -4,4 +4,4 @@ Enjoys Coffee, Math, and Factorio
 
 Undergraduate Student of School of Electrical and Informatics Engineering, Bandung Institute of Technology
 
-KBai - R.S.
+Also Known As LiroSphere
